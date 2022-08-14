@@ -15,6 +15,8 @@ Gaming is another hobby that I enjoy, as I have great memories in games such as 
 
 My goals for the future are to become wealthy to the point where I could pass down wealth to give future generations a somewhat more comfortable lifestyle. Goals for myself are to also explore the world, visiting countries for their unique cultures, languages and nature.
 
+I also really hate tomatoes
+
 
 ### Interest in IT
 My interest in business has always led me to the concept of innovation, making society a little better than it currently is. My personal beliefs is that in the modern day, this is achieved through the development of technology, whether or not it is essential or not. My belief is that knowledge in IT is necessary for people who want to go forward into the future with an understanding in how the world works, which is why I attempt to fill my elective classes with subjects that can teach me basics of coding languages or develop my understanding in Information technology.
