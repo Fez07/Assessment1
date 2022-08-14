@@ -1,6 +1,7 @@
 # My Profile
 
 ### Personal Information
+<img src="profilepic.png" alt="drawing" width="200"/>
 <img src="https://github.com/Fez07/Assessment1/blob/main/profilepic.png" width="200" height="210" />
 
 My name is Theo Constas, I am 19 years old, and I am from Melbourne, Australia, a place that I was born and have lived my entire life in.
