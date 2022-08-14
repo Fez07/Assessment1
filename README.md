@@ -11,6 +11,6 @@ I am a 3rd generation immigrant as all my grandparents immigrated from Greece to
 
 I used to find difficulty finding hobbies to stick to but over time I found that I enjoyed Tennis, which however I dropped right before entering senior level competition and instead begun training in the gym for a source of fitness.
 
-Gaming is another hobby that I enjoy, having great memories in games such as GTA 5, Minecraft, GMOD and much more recently Rocket League and Fortnite. My gaming hobby mixes well with my drive to socialise, as I usually only find myself gaming a lot when I am playing with friends, and if not gaming, I enjoy spending time with my friends going out drinking or doing activities.
+Gaming is another hobby that I enjoy, as I have great memories in games such as GTA 5, Minecraft, GMOD and much more recently Rocket League and Fortnite. My gaming hobby mixes well with my drive to socialise, as I usually only find myself gaming a lot when I am playing with friends, and if not gaming, I enjoy spending time with my friends going out drinking or doing activities.
 
 My goals for the future are to become wealthy to the point where I could pass down wealth to give future generations a somewhat more comfortable lifestyle. Goals for myself are to also explore the world, visiting countries for their unique cultures, languages and nature.
