@@ -1,7 +1,7 @@
 # My Profile
 
 ### Personal Information
-<img src="https://github.com/Fez07/Assessment1/blob/main/profilepic.png" width="200" height="200" />
+<img src="https://github.com/Fez07/Assessment1/blob/main/profilepic" width="200" height="200" />
 My name is Theo Constas, I am 19 years old, and I am from Melbourne, Australia, a place that I was born and have lived my entire life in.!
 I graduated at Overnewton Anglican Community College and began studying at RMIT in 2021 in a Bachelor of Business course majoring in Marketing.!
 I am a 3rd generation immigrant as all my grandparents immigrated from Greece to start a new life in Australia. In my family, I have one younger brother and one older sister, making me the middle child and of course having middle child syndrome. As well in the family we have on dog who is 12 years old, and is a cross breed, being half Shih Tzu, and half Jack Russel.!
